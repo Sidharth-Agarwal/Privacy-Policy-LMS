@@ -58,4 +58,6 @@ For questions about our Privacy Policy:
 
 ---
 
-© 2025 Niti Technologies. All rights reserved.# Privacy Policy - NEISSR App
+© 2025 Niti Technologies. All rights reserved.
+
+# Privacy Policy - NEISSR App
