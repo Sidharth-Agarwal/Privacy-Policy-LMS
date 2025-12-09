@@ -54,7 +54,7 @@ We may update this Privacy Policy periodically. Check this page for changes.
 
 For questions about our Privacy Policy:
 
-**Email:** [Insert Support Email Address]
+**Email:** nititechnologies3@gmail.com
 
 ---
 
